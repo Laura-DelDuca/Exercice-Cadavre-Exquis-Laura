@@ -10,3 +10,6 @@
 
 ## **31 Octobre, 1h...**
 Le sol se rapproche de plus en plus vite de son visage. BAM. Il est à terre. Son nez saigne. Le masque l'observe, du coin de la pièce. Il n'est plus comme d'habitude. Sa couleur est plus vive. Le creux des yeux semble rempli de tristesse.
+
+Il s'amusait tellement à effrayer ses semblables et à les piéger qu'il ne pensait pas qu'un jour, lui aussi serait observé.
+Une petite fille malicieuse avait en effet repéré son manège et s'aprêtait à lui rendre la monnaie de sa pièce !
