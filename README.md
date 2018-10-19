@@ -6,7 +6,7 @@
 
 
 ## **31 Octobre, 6h...**
-*"**Biiip ... Biiip ... Biiip**", le réveil sonne ... doucement les paupières se décolle, les yeux douloureux et rouge du lendemain le son du réveil résonne encore " **Biiip ... Biiip ... Biiip** ...  
+*"**Biiip ... Biiip ... Biiip**", le réveil sonne ... doucement les paupières se décollent, les yeux douloureux et rouges du lendemain, le son du réveil résonne encore " **Biiip ... Biiip ... Biiip** ...  
 
 ## **31 Octobre, 1h...**
 Le sol se rapproche de plus en plus vite de son visage. BAM. Il est à terre. Son nez saigne. Le masque l'observe, du coin de la pièce. Il n'est plus comme d'habitude. Sa couleur est plus vive. Le creux des yeux semble rempli de tristesse.
